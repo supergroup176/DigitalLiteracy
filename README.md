@@ -9,4 +9,4 @@
 - Я люблю фотографировать, но не занимаюсь этим профессионально и у меня нет фотоаппарата
 - Люблю готовить, когда у меня есть настроение и вдохновение
 - У меня есть пушистый милый котенкин-пупсенкин (вообще это кошка и зовут её Рада)
-![](https://github.com/supergroup176/DigitalLiteracy/commit/57eec7cdf51d4b80e77ee42385f3fbdf2205908b#diff-620620d952a121126c47d80aefc5da31)
+![](https:https://github.com/supergroup176/DigitalLiteracy/commit/57eec7cdf51d4b80e77ee42385f3fbdf2205908b)
