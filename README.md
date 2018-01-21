@@ -11,5 +11,4 @@
 - У меня есть пушистый милый котенкин-пупсенкин (вообще это кошка и зовут её Рада)
 ![](https://github.com/supergroup176/DigitalLiteracy/blob/57eec7cdf51d4b80e77ee42385f3fbdf2205908b/DYKH2968.jpg)
 
-**Мое расписание**
 
