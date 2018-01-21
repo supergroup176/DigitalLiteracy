@@ -14,6 +14,8 @@
 ![](https://github.com/supergroup176/DigitalLiteracy/blob/57eec7cdf51d4b80e77ee42385f3fbdf2205908b/DYKH2968.jpg "кися")
 - У меня всегда была мечта покачаться на больших веревочных качелях, расположенных на дереве на берегу моря
 ![](https://raw.githubusercontent.com/supergroup176/DigitalLiteracy/master/%D0%BA%D0%B0%D1%87%D0%B5%D0%BB%D0%B8.JPG)
+- Около 9 лет я профессонально занималась бально-спортивными танцами 
+![](https://raw.githubusercontent.com/supergroup176/DigitalLiteracy/master/IMG_6087.JPG "танцевальная программа стандарт")
 
 -----
 **Цитаты, которые мне нравятся:**
