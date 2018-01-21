@@ -1,7 +1,9 @@
 # DigitalLiteracy
 ## Кайгородова Инна
-Мой аккаунт (https://m.vk.com/id94469884) в вк  
-Моя почта <kaigorodowa.inna@yandex.ru>
+**Мои контакты**
+1. Мой аккаунт (https://m.vk.com/id94469884) в вк  
+2. Моя почта <kaigorodowa.inna@yandex.ru>
+3. Мой инстаграм <https://www.instagram.com/inna_kaygorodowa/>
 ## Несколько интересных или не очень интересных фактов обо мне:
 - У меня нет родных братьев и сестер
 - Мой любимый цвет голубой
